@@ -1,1 +1,1 @@
-Curso GBI6-G02
+Mi primer mansaje
